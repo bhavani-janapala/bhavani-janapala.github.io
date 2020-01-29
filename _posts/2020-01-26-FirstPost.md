@@ -6,4 +6,4 @@ Utilizing my free time in creating crafts and drawings.
 
 Recycled the waste. Made a tree as showpiece by using the empty deodorant,wire and paper.
 
-![Best from waste](/images/orange tree.jpg)
+![Best from waste](/images/orangetree.jpg)
